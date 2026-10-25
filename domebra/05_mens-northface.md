@@ -140,6 +140,7 @@ A. 価格はモデルや年によって変わります。2023年の記事では�
 
 - アイキャッチ：ニット帽と冬服の男性 https://www.pexels.com/photo/photograph-of-men-wearing-beanies-7026766/
 - ダウンの挿絵：ダウンジャケットの男性たち https://www.pexels.com/photo/photograph-of-men-in-puffer-jackets-looking-away-7026422/
+- 色選びの図解：街で合わせやすい色（黒・ネイビー・アースカラー）と避けたい鮮やかな色の比較チップ（自作）
 - 商品画像：各公式・アフィリエイトの提供画像を使用（ロゴ入り写真の扱いは提供元の規約に従う）
 
 ## 出典

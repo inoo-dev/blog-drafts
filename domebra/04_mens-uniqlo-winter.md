@@ -135,6 +135,7 @@ A. 冬の寒さ対策を優先するなら、リバーシブルダウンショ�
 
 - アイキャッチ：ダウンジャケットの男性 https://www.pexels.com/photo/photograph-of-men-in-puffer-jackets-looking-away-7026422/
 - コーデ2の挿絵：黒のジャケットとパンツの男性 https://www.pexels.com/photo/man-in-black-jacket-and-black-pants-standing-on-road-11765430/
+- 着回しの図解：主役3品（ダウン・MA-1・カバーオール）と合わせるパンツ・靴の組み合わせ表（自作）
 - 商品画像：ユニクロ公式・アフィリエイトの提供画像を使用
 - ユニクロ公式の商品ページURL：【要確認】（作業環境から公式サイトに接続できず未確認）
 

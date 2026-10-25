@@ -154,6 +154,7 @@ MA-1を大人っぽく着るコツは、色を落ち着かせる、インナー�
 
 - アイキャッチ：黒のジャケットの男性 https://www.pexels.com/photo/man-in-black-jacket-and-black-pants-standing-on-road-11765430/
 - コーデ例の挿絵：冬服で街を歩く男性たち https://www.pexels.com/photo/men-walking-on-sidewalk-7255311/
+- 合わせ方の図解：MA-1×インナー×パンツ×靴の3コーデを並べた図（自作）
 - 商品画像：各公式・アフィリエイトの提供画像を使用
 - ユニクロ公式の商品ページURL：【要確認】（作業環境から公式サイトに接続できず未確認）
 
